@@ -1,3 +1,3 @@
 25/09/2026
 
-<!-- Round 1 · 2026-09-25 14:58:00 · K8F9COsZ · gwmrlm@cox.net, rob1781@sbcglobal.net -->
+<!-- Round 2 · 2026-09-25 14:58:07 · bOznKWDr · davec60@att.net, mbilan3110@charter.net -->
